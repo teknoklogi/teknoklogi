@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @teknoklogi
+- 👀 I’m interested in teknoklogi
+- 💞️ I’m looking to collaborate on Teknoklogi Media
